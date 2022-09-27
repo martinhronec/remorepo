@@ -1,1 +1,1 @@
-Ecommerce is dead.
+Ecommerce is dead, but not really.
