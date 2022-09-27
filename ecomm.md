@@ -1,1 +1,3 @@
-Ecommerce is dead.
+Ecommerce is alive.
+
+Yes it is.
